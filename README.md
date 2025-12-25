@@ -61,7 +61,7 @@ Feel free to tag @arafathosense when you post your recreation—would love to se
 
 ## 👤 Author
 
-**HOSEN ARAFAT)**  
+**HOSEN ARAFAT**  
 
 Software Engineer, China 
 
